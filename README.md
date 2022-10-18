@@ -1,1 +1,3 @@
 # Discord-CMD-Hakcs
+
+SOON
